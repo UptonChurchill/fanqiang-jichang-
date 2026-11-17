@@ -15,7 +15,7 @@
       <td><strong>苏菲家宽</strong></td>
       <td>⭐⭐⭐⭐⭐</td>
       <td>美日独占住宅级原生 IP，AI 养号与高风控防封首选</td>
-      <td><a href="https://www.sufe.pro/register?code=VA1k1GVa" target="_blank" rel="nofollow">苏菲家宽官网地址</a></td>
+      <td><a href="https://www.sufe.us/register?code=VA1k1GVa" target="_blank" rel="nofollow">苏菲家宽官网地址</a></td>
     </tr>
     <tr>
       <td><strong>西游云</strong></td>
@@ -130,7 +130,7 @@
     <tr>
       <td><strong>苏菲家宽</strong></td>
       <td>⭐⭐⭐⭐⭐</td>
-      <td><a href="https://www.sufe.pro/register?code=VA1k1GVa" target="_blank" rel="nofollow">点此直达官网</a></td>
+      <td><a href="https://www.sufe.us/register?code=VA1k1GVa" target="_blank" rel="nofollow">点此直达官网</a></td>
       <td>美日独占住宅原生 IP / 永不清零流量包</td>
     </tr>
     <tr>
